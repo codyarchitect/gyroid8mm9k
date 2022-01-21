@@ -1,1 +1,0 @@
-# gyroid8mm9k
